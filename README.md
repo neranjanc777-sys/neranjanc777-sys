@@ -20,8 +20,9 @@ I'm an **2nd-Year ICT Undergraduate at KDU** and a **Part-time Operations Assist
 
 ### 🏆 Leadership & Involvement :
 
-* **Department Coordinator (ICT):** CSSL GenZ Chapter at KDU (2026/2027)
-* **Director of Community Services:** Rotaract Club of KDU (2025/2026)
+* **Director of Community Services (2025/26):** Rotaract Club of KDU
+* **Department Coordinator-ICT (2026/27):** CSSL GenZ Chapter at KDU
+* **Project Chair (2026/27):** IEEE Student Branch of KDU
 * **Assistant Secretary:** Student Association, Faculty of Technology
 
 ---
